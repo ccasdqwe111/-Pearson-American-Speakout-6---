@@ -1,4 +1,5 @@
-教师书+练习册+测试+影音+软件等
+# 《Pearson American Speakout》6级全下载-培生美版英语听说教材 学生&amp;教师书+练习册+测试+影音+软件等
+
 
 
 获课：caoxingit.cn/28331/《Pearson American Speakout》6级全下载-培生美版英语听说教材 学生&amp;教师书+练习册+测试+影音+软件等
